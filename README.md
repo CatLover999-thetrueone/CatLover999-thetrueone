@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CatLover999-thetrueone and my artist name is Goldenfang
-- 🌱 I’m currently learning pretty much nothing, I want to learn more python
+- 🌱 I’m currently learning pretty much nothing, I want to learn more Javascript
 - 📫 Reach me via my discord thetowncat (i think u should be able to dm)
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I have an OC that has canonically committed SA
